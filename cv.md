@@ -16,7 +16,7 @@ a good team member.*
 
 - [Github](https://github.com/lauris2010)
 
-- Tel. [+37062593930](tel:+37062593930)️ 
+- [+37062593930](tel:+37062593930)️ 
 
 ---
 
